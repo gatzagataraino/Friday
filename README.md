@@ -1,5 +1,5 @@
 # Friday
-repository to be graded
+the grade I think I deserve is (see docxs doument)
 
 ......(\_/)
 ......( '_')
